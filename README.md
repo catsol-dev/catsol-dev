@@ -7,7 +7,7 @@
 
 
 ### 🌸 | Who are you?
-Hi, I'm Catsol or Claire. I'm a student currently working on expanding my portfolio and experience to prepare for college and the workforce.
+Hi, I'm Catsol or Claire. I'm a student currently working on expanding my portfolio and experience to prepare for college and the workforce. I use she/her pronouns by the way.
 
 ### 🍀 | Anything notable about you?
 Honestly, not in particular. I am an avid gamer and a trans gal into computer science (shocking eh?)
