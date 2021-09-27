@@ -1,10 +1,10 @@
 # Why hello there, come inside for a cup of coffee will you?
 
----
+
 
 ## Welcome to my github, this is where I will be hosting most of my projects. I will mainly be working on some projects, notably Catlun. If you desire to learn some more, you may read a bit about me down below.
 
----
+
 
 ### Who are you?
 Hi, I'm Catsol or Claire. I'm a student currently working on expanding my portfolio and experience to prepare for college and the workforce.
